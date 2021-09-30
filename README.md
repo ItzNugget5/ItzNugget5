@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ItzNugget5
+- 👀 I’m interested in Skateboarding
+- 🌱 I’m currently learning on how to Skateboard
+- 💞️ I’m not really the person to collaborate with
+- 📫 I really love skateboarding and I want it to be my career
